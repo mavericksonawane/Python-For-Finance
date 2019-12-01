@@ -6,5 +6,5 @@ By saying this much I rest myself <br>
 Enjoy <br>
 
 <br>
-Programmer: mayur sonawane <br>
+Programmer: Mayur Sonawane <br>
 for enquiries contact: mavericksonawane@gmail.com <br>
